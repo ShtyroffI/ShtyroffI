@@ -5,6 +5,6 @@
 - 🌱 I’m currently learning English and Python as a first-year student at HSE (Higher School of Economics).
 - 👯 I’m looking to collaborate on developing mini apps and Telegram bots.
 - 🤔 I’m looking for help with staying focused and organizing my learning more effectively.
--	📫 How to reach me: 
+-	📫 How to reach me: ✈️[TG](https://t.me/ShtyroffI)
 -	⚡ Fun fact: I love Pharaoh, GONE.Fludd, RDR2 and GTA — music and games always keep me inspired.
 -	**I <3 🐍**
