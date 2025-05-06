@@ -6,5 +6,4 @@
 - 👯 I’m looking to collaborate on developing mini apps and Telegram bots.
 - 🤔 I’m looking for help with staying focused and organizing my learning more effectively.
 -	📫 How to reach me: https://t.me/ShtyroffI
--	⚡ Fun fact: I love Pharaoh, GONE.Fludd, RDR2 and GTA — music and games always keep me inspired.
 -	**I <3 🐍**
